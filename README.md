@@ -56,8 +56,7 @@ The Race and Decolonisation working group was established in February 2023 to un
 
 
 ## Outputs
-
-
+- 'This project is very white: experiments in resisting inclusion and diversity paradigms', forthcoming book chapter in Emergent Histories: New Work in the Digital History of Industry and Collections from the Congruence Engine Project
 
 
 ## Key initial findings
